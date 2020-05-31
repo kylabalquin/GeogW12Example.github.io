@@ -1,1 +1,0 @@
-# GeogW12Example.github.io
